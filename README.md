@@ -4,7 +4,8 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 * 🌍  I'm based in Sakon Nakhon
 * ✉️  You can contact me at [anisa.l@ku.th](mailto:anisa.l@ku.th)
 ![](https://komarev.com/ghpvc/?username=AnisaLateh&color=red)
-<img width="1000" height="1000" alt="2" src="https://github.com/user-attachments/assets/d2054fa2-f80f-4e07-9ab1-801ba00a6ee5" />
+<<img width="237" height="280" alt="การ์ตูน" src="https://github.com/user-attachments/assets/f50e9668-094f-4987-be86-dd7d62306efb" />
+" />
 
 
 <p align="left">
